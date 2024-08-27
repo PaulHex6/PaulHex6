@@ -1,8 +1,8 @@
 # Hi, I'm Paul 👋
 
 🔍 **Data & AI Enthusiast**  
-🌿 **Renewable Energy Specialist**  
-🚀 **Coding Explorer**
+⚡ **Renewable Energy Specialist**  
+📊 **Coding Explorer**
 
 I'm on a journey where **data**, **artificial intelligence**, and **renewable energy** intersect. Here, you'll discover my latest explorations, innovative projects, and ideas.
 
