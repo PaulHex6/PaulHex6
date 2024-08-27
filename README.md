@@ -4,4 +4,5 @@
 🌿 **Renewable Energy Specialist**  
 🚀 **Coding Explorer**
 
-I'm passionate about data, AI, and sustainable energy. Here, I share my journey combining these interests.
+I'm on a journey where **data**, **artificial intelligence**, and **renewable energy** intersect. Here, you'll discover my latest explorations, innovative projects, and ideas. 
+**Join me** as I turn curiosity into impactful solutions! 🚀
